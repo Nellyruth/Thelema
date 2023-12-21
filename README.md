@@ -1,1 +1,1 @@
-# Thelema
+# God fearing 
